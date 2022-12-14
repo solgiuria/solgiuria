@@ -1,4 +1,4 @@
-[![HD-wallpaper-Hello-World-text-minimalism-code-quote-digital-art-abstract.jpg](https://i.postimg.cc/0NY33n78/HD-wallpaper-Hello-World-text-minimalism-code-quote-digital-art-abstract.jpg)](https://postimg.cc/67QY4dHS)
+[![HD-wallpaper-Hello-World-text-minimalism-code-quote-digital-art-abstract.jpg](https://i.postimg.cc/fRNT02Ws/HD-wallpaper-Hello-World-text-minimalism-code-quote-digital-art-abstract.jpg)](https://postimg.cc/GHX1Wjsg)
 <h1 align="center">Hi 👋, I'm Maria Sol</h1>
 <h3 align="center">A passionate Full Stack Developer from Argentina</h3>
 
